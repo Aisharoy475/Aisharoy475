@@ -1,0 +1,5 @@
+-     About me
+- 👋 Hi, I’m @Aisharoy475
+- 👀 I’m interested in learning something new
+- 🌱 I’m currently in Btech
+- 💞️  collaborate 
